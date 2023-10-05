@@ -1,1 +1,1 @@
-- Microsoft is a glow in the dark, all praise our lord and saivour the Buffalo Bill of FLOSS.
+I do not glow in the dark, you should not too.
